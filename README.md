@@ -1,1 +1,1 @@
-# [videogolaugh.github.io](https://videogolaugh.github.io)
+# [safewallpaper.github.io](https://safewallpaper.github.io)
